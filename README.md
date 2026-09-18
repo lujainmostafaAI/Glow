@@ -1,1 +1,1 @@
-This Chatbot is made specially for people who are tired of living because they feel lonely and misunderstood. When you use it you will see how useful it it. 
+This Chatbot can't just communicate with you and understand you; it is trained to understand your emotions and feelings and make you feel better. There are many young people now who are tired of living for many reasons, but the main reason is that they feel lonely and no one can understand them. So that's basically made for anyone who feels lonely.
