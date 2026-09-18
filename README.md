@@ -1,1 +1,1 @@
-# NewRepo
+This Chatbot is made specially for people who are tired of living because they feel lonely and misunderstood. When you use it you will see how useful it it. 
